@@ -14,30 +14,46 @@ Similarly to Joan Fontcuberta we could create a fictional object/discovery, docu
 ### Research - Sources
 
 Payless’ fake store selling 20-40$ shoes for 200-600$. http://fortune.com/2018/11/28/payless-fake-luxury-store/
+
 Supreme selling calculator, hammer or sold-out 30$ brick that was resold for 1000$+ on ebay afterwards. https://www.theguardian.com/technology/2016/sep/30/red-clay-brick-selling-for-up-to-1000-on-ebay
+
 Ikea x Off-white collab https://www.standard.co.uk/insider/living/virgil-abloh-offwhite-off-white-ikea-rug-collection-price-date-a4133516.html
+
 Balenciaga crocs https://www.wmagazine.com/story/balenciaga-made-high-heel-crocs
 Ikea trend https://www.capitalfm.com/news/ikea-fashion-trend-out-of-control/
+
 Zeeman 
 https://www.zeemansneaker.com/nl 
+
 Supreme/Prada
 https://www.volkskrant.nl/cultuur-media/een-baksteen-van-1-000-euro-ja-maar-dan-wel-eentje-van-supreme~bc25dc44/ 
+
 Balenciaga vs Ikea https://www.google.com/search?q=balenciaga+bag+blue+ikea&tbm=isch&source=iu&ictx=1&fir=jyd2cVDdTBbknM%253A%252CByuisXgF0uQOeM%252C_&vet=1&usg=AI4_-kT3asTVaKfE4Y0XwHWWl_tLrWRLCQ&sa=X&ved=2ahUKEwjG9a3IzcDiAhXB_qQKHY1UBPAQ9QEwAXoECAcQBg#imgrc=WW01kFahs3WIKM:&vet=1 
+
 Lidl
 https://www.rtlnieuws.nl/editienl/artikel/4722616/lidl-verkoopt-sokken-met-eigen-logo-erop 
+
 Febo
 https://www.febo.nl/shop/ 
+
 Short Video about how jeans are made and what they cost. https://www.npostart.nl/de-rekenkamer/24-09-2015/KN_1673119  
+
 Moscino Parfume https://www.douglas.nl/productbrand_900032.html?trac=nl.01psh.goo.9976225783.%7Bproduct_id%7D.%7Badgroupid%7D.000000&cpkey=XYJTwIXBp0-pIC09bU2kRQIwtno8JX9X_wqh3SjvroocWGBzwQZGKJ8zMgKYvoB7&gclid=EAIaIQobChMIlMT38s_A4gIVheF3Ch1CjwOtEAQYAiABEgJbT_D_BwE  
+
 Zeeman weddingdress https://www.leoprinting.nl/blog/zo-haal-je-de-kranten-kleding-valt-op/  
+
 Fashionweek trolls, funny video 
 https://www.youtube.com/watch?v=hIpjdOT3jsI
+
 How I Faked My Way to The Top of Paris Fashion Week
 https://www.youtube.com/watch?v=jolbYvAMorY
+
 The Budget Hotel - Hans Brinker 
 https://hansbrinker.com/ - https://www.youtube.com/watch?v=uv3KqZUY_qc&t=16s 
+
 The biggest fake news in Fasion 
 https://www.nytimes.com/2018/12/18/fashion/fashion-second-biggest-polluter-fake-news.html 
+
 Acne, shoes, classmate
 https://www.vooberlin.com/men/new-in/acne-studios/rockaway-tumbled-sneaker
 
