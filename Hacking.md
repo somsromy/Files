@@ -45,12 +45,12 @@ https://www.vooberlin.com/men/new-in/acne-studios/rockaway-tumbled-sneaker
 
 ### WHAT ARE WE GOING TO DO
 
-Hack the Fashion industry 
-Create a Hoax.
-Buy Sneakers.
-Customize the sneakers  -> We need to know what it is that makes sneakers so exclusive. 
-Pick a label and connect this with the sneakers.
-PROMOTE -> Wikipedia, show the exclusiveness, Ebay, Photoshoot, Advertisements, Interview people, Advertisements, 
+- Hack the Fashion industry 
+- Create a Hoax
+- Buy Sneakers
+- Customize the sneakers  -> We need to know what it is that makes sneakers so exclusive. 
+- Pick a label and connect this with the sneakers.
+- PROMOTE -> Wikipedia, show the exclusiveness, Ebay, Photoshoot, Advertisements, Interview people, Advertisements etc.
 
 ### FOR NOW 
 
@@ -60,10 +60,10 @@ Add more references to this Fashion industry hoax topic.
 
 Meet up: Monday 
 
-edit campaignshoot
-edit productshoot
-Make poster with campaignshootphoto’s
-Make a advertisement with campaignshootphoto’s
-Put productshootphoto’s on website (photoshop)
-Gather all things we want to show in presentation
-Make presentation together
+- Edit campaignshoot
+- Edit productshoot
+- Make poster with campaignshootphoto’s
+- Make a advertisement with campaignshootphoto’s
+- Put productshootphoto’s on website (photoshop)
+- Gather all things we want to show in presentation
+- Make presentation together
